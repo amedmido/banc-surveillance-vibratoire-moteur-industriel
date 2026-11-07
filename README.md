@@ -1,0 +1,1 @@
+# banc-surveillance-vibratoire-moteur-industriel
